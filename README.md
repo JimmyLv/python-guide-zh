@@ -15,7 +15,7 @@
 - 对Python、编程的理解
 
 > Contact me:
-- E-mail: 460051518@qq.com
+- E-mail: 460051518@qq.com/jimmy.jinglv@gmail.com
 - WeiBo: @立青名字开根号
 - WeChat: liqing215
 
